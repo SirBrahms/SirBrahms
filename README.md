@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SirBrahms
-- 👀 I’m interested in really everything
-- 📫 How to reach me sirbrahms16@gmail.com
+- 👀 I’m interested in: really everything
+- 📫 How to reach me: sirbrahms16@gmail.com
 
 I am always looking to learn something new
 
